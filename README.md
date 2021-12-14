@@ -1,3 +1,0 @@
-# Polytopia
-
-Coming Soon!
